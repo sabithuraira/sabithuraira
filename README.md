@@ -3,7 +3,7 @@
 Hi, I’m Sabit Huraira from Indonesia, an energetic Software Developer with more than 10 years experience developing web and android applications.
 
 
-===>>> Cool programming tutorial from me [Youtub Pages](https://www.youtube.com/@sabitzhabit).
+===>>> Cool programming tutorial from me [Youtube Pages](https://www.youtube.com/@sabitzhabit).
 
 
 
