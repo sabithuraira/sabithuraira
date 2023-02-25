@@ -1,4 +1,4 @@
-### Hi, I'm Sabit Huraira 👋
+### Hi 👋
 
 Hi, I’m Sabit Huraira from Indonesia, an energetic Software Developer with more than 10 years experience developing web and android applications.
 
